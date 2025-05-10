@@ -1,4 +1,4 @@
-# 红楼梦/A Dream of Red Mansions
+# 红楼梦/Dream of the Red Chamber
 
 > 心血来潮，于此回顾
 
